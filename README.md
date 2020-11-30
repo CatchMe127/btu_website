@@ -1,0 +1,2 @@
+# btu_website
+baza chemit shevkmeni migraciebis failebshi racaa.. aseve kursebis damateba cashla editi. rolebis damateba cashla editi egec chemi dacerilia :d danarcheni template aris da ideashi sxva rameebi arc funckionirebs. meore proektsac avtvirtav kovelgari templates gareshe.. postebis damateba editi cashla makvs marto mara ratomghac kodshi raghac avrie da gamartulad ar mushaobs.. gadaxede kods tu gecleba
